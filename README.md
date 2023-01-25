@@ -1,1 +1,1 @@
-This license
+I tried to simplify the unlicense as best as I can.
