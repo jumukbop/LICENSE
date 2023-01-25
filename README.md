@@ -1,1 +1,1 @@
-I hope the world that everyone has "Equity Theory"
+I hope the world that everyone has equity theory.
